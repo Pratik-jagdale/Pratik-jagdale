@@ -1,5 +1,5 @@
 # 💫 About Me:
-📑 I'm currently pursuing B.E Cs (4th Year).<br>🔧 Solution-driven Computer Engineer 🖥️<br>🧠 Diverse range of knowledge 💡<br>🚀 Proficient in self-motivation and team leadership 🤝<br>💻 Enthusiastic about Computer Technology 🌐<br>👩‍🏫 Dedicated to educating the upcoming generation of technology users and innovators 🎓
+📑 I'm currently B.E/B.Tech Cs Graduate .<br>🔧 Solution-driven Computer Engineer 🖥️<br>🧠 Diverse range of knowledge 💡<br>🚀 Proficient in self-motivation and team leadership 🤝<br>💻 Enthusiastic about Computer Technology 🌐<br>👩‍🏫 Dedicated to educating the upcoming generation of technology users and innovators 🎓
 
 
 ## 🌐 Socials:
